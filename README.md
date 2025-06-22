@@ -1,0 +1,1 @@
+httpwww.cppblog.comwlwlxjarchive20110601147904.html
